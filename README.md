@@ -6,4 +6,4 @@
 
 -💞️ Open to collaboration on innovative projects in AI and software development
 
--📫 Reach me at x.com/_A0O7
+-📫 Reach me at LinkedIn : https://www.linkedin.com/in/ahmed-ibrahim-almalki/
